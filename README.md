@@ -1,1 +1,0 @@
-# valeresorts.github.io
